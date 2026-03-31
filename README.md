@@ -2,5 +2,8 @@
 <br> i like concert duo/naukosick YES i am normal about them YES i use this github.
 
 
-https://github.com/user-attachments/assets/6de6d55a-cdb7-43fe-b27a-d2dd3a02642a
+
+https://github.com/user-attachments/assets/797c8fa8-f759-4680-a4d0-5c36e2fd35fb
+
+
 
